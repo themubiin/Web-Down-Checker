@@ -102,7 +102,7 @@ one that only alerts you when something actually needs attention.
 
 * [Facebook](https://facebook.com/the.mubiin)
 
-* [LinkedIn](linkedin.com/in/mubiiin)
+* [LinkedIn](https://linkedin.com/in/mubiiin)
 
 * [Portfolio](https://mubin.eu)
 
